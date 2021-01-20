@@ -40,3 +40,7 @@ Mechanical engineer from Novato, California who is wondering why Tommy is so wei
 ### Karen Su - New
 
 MechE from Diamond Bar, Socal. 
+
+### Pratik Gupta - I'm New
+
+Apple pie + vanilla ice cream is S tier. This is the Way.
